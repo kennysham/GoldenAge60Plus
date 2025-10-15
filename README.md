@@ -1,3 +1,4 @@
-This site is help to promote Golden Age (60+) football activities
-"Friday Morning Show" is formed by a group of retired football enthusiast in May 2022, with the objective to promote golden age (60+) football activities. Via regular training, matches and different activities, so as to improve body fitness and techniques, broaden social circles and enhance both physical and psychological health.
-Since most activities are arranged in Friday morning, therefore the group is named “Friday Morning Show”.
+"Golden Age 60+ " is formed by a group of retired football enthusiast in October 1,  2025 from merging "Ball Fans Club"  (formed in 2018) and "Frifay Morning Show" (formed in 2022) , with the objective to strengthen health and improve life quality. 
+
+Via regular soccer training, matches and different activities, so as to improve human physical balance, body fitness, techniques
+and emotional control ability,  broaden social circles, enhance both physical and psychological health, as well as improving  life quality.
